@@ -2,7 +2,7 @@
 
 **Full Stack Developer | Growth Mindset | Lifelong Learner**
 
-**Email:** duc.nguyen@uptempo-global.com
+**Email:** binhduc1211@gmail.com
 
 **LinkedIn:** [linkedin.com/in/ducnb1211](https://www.linkedin.com/in/ducnb1211/)
 
